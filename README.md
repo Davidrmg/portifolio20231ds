@@ -1,6 +1,6 @@
 ![certificado1](https://github.com/Davidrmg/portifolio20231ds/assets/133404149/86d7a030-d730-4b19-aaa2-1cf7c0872ef5)
-![certificado2](https://github.com/Davidrmg/portifolio20231ds/assets/133404149/8148c4a0-40fb-468f-8cc9-60818c38ddae)
-![certificado3](https://github.com/Davidrmg/portifolio20231ds/assets/133404149/fda1ca90-6d1d-467b-bf67-20304e5bd8a9)
+![certificado2](https://github.com/Davidrmg/portifolio20231ds/assets/133404149/91d6bb17-bed3-41da-8db6-69d317ef34d0)
+![certificado3](https://github.com/Davidrmg/portifolio20231ds/assets/133404149/bc5c982a-912e-41ee-97c8-7aee3392e212)
 ![certificado4](https://github.com/Davidrmg/portifolio20231ds/assets/133404149/02f909bc-0ffb-49c7-ac9f-63bd4bd76e33)
 ![certificado5](https://github.com/Davidrmg/portifolio20231ds/assets/133404149/902046ea-7eaa-4785-ab86-11a73c2407d3)
 ![certificado6](https://github.com/Davidrmg/portifolio20231ds/assets/133404149/368e8c35-c32a-4437-ba92-3aed3c12ddbe)
